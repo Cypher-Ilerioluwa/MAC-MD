@@ -1,4 +1,4 @@
 
-Developer one = Mas tech https://wa.me/256705036288
+Developer one = Cypher Ìléríolúwa://wa.me/2349121881343
 
-Developer two = IBRAHIM TECH: https://wa.me/254710772666
+Developer two = Cypher: https://wa.me/2349151066117
